@@ -2,4 +2,4 @@
 Publik repo
 
 ##Masukan Siapa yang mau ikut
-1.
+1. Isa Tarmana M
